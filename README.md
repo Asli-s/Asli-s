@@ -1,4 +1,3 @@
-- :love_letter: How to reach me aslihan.d.soydemir@gmail.com...
 
 
 <!---
